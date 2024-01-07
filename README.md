@@ -1,1 +1,2 @@
-<img alt = "output" src = "https://i.postimg.cc/rmS4NcGN/Screenshot-2023-12-25-180151.png" width = "800" height = "400">
+https://github.com/Sutanu1234/Christmas-Wish/assets/123285380/2bad633a-54dd-4d7f-89be-8495a2ec4044
+
